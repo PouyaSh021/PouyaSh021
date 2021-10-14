@@ -12,6 +12,7 @@
 
 - I’m looking to collaborate on ...
      - Game projects developed with Unity.
+     - Teams and looking for friends to work with.
 
 
 - How to reach me ...
